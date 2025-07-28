@@ -1,1 +1,0 @@
-# kakigori-festival
